@@ -21,6 +21,9 @@ here are some visitings://
 
 <img width="1905" height="943" alt="Screenshot 2026-07-25 041429" src="https://github.com/user-attachments/assets/0563993f-bebd-49a2-b043-1968ec9d6ea7" />
 
+<img width="1822" height="783" alt="Screenshot 2026-07-25 041653" src="https://github.com/user-attachments/assets/ee24940d-c20b-4344-a6be-f7479888efe8" />
+
+
 
 
 
